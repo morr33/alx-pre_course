@@ -1,1 +1,3 @@
-My AlX Dream
+My AlX Journey 
+Do hard things
+Work hard
